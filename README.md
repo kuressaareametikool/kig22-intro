@@ -6,3 +6,6 @@ Here are our contacts
 
 kristjan.jansen@gmail.com
 Pole vaja teada!
+
+# Erik
+erikriige.at.gmail.com
