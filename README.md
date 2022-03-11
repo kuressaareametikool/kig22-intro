@@ -6,3 +6,7 @@ Here are our contacts
 
 kristjan.jansen@gmail.com
 https://kristjanjansen.ee/
+
+## Elis Kindlam
+
+elis.kindlam@gmail.com
