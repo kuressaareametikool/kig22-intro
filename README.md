@@ -5,4 +5,4 @@ Here are our contacts
 ## Kristjan Jansen
 
 kristjan.jansen@gmail.com
-https://kristjanjansen.ee/
+Pole vaja teada!
