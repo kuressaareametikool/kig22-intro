@@ -23,7 +23,7 @@ Hellou
 # Erik
 erikriige.at.gmail.com
 
-## EKarmel Pea
+## Karmel Pea
 
 karmelpea@gmail.com
 Pole vaja teada!
