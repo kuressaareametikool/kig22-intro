@@ -6,3 +6,7 @@ Here are our contacts
 
 kristjan.jansen@gmail.com
 https://kristjanjansen.ee/
+
+## Tiina Tuulik
+
+ttuulik@gmail.com
