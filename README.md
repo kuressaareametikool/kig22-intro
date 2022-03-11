@@ -18,8 +18,9 @@ ttuulik@gmail.com
 Pole vaja teada!
 
 
-Katriin R
-Hellou
+Katriin 
+k.rannamae@gmail.com
+
 # Erik
 erikriige.at.gmail.com
 
