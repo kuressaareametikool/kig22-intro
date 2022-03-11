@@ -10,3 +10,4 @@ https://kristjanjansen.ee/
 ## Tiina Tuulik
 
 ttuulik@gmail.com
+Pole vaja teada!
