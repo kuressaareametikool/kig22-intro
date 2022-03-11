@@ -10,3 +10,5 @@ https://kristjanjansen.ee/
 ## Elis Kindlam
 
 elis.kindlam@gmail.com
+Pole vaja teada!
+
