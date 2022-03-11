@@ -12,3 +12,13 @@ https://kristjanjansen.ee/
 elis.kindlam@gmail.com
 Pole vaja teada!
 
+## Tiina Tuulik
+
+ttuulik@gmail.com
+Pole vaja teada!
+
+
+Katriin R
+Hellou
+# Erik
+erikriige.at.gmail.com
